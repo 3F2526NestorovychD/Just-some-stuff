@@ -13,7 +13,7 @@
 
 ![](https://i.imgur.com/4OcR6OO.png)
 
-<a href="https://your-link-here.com"><img src="https://i.imgur.com/lXJzhMI.jpeg" width="10000" height="300" style="object-fit: cover;" /></a>
+<a href="https://your-link-here.com"><img src="https://i.imgur.com/lXJzhMI.jpeg" width="1700" height="300" style="object-fit: cover;" /></a>
 
 ![](https://i.imgur.com/4OcR6OO.png)
 
