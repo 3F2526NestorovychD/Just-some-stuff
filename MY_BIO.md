@@ -25,11 +25,9 @@ img300(https://discord.c99.nl/widget/theme-2/1250106402127482922.png)
 
 ═══════════════════════════════════
 
-img300(https://discord.c99.nl/widget/theme-2/1250106402127482922.png)
-
 <a href="https://shorturl.at/ZmCez"><strong>Opinions:</strong></a>
 → Media Elitists are the corniest mfs on earth  
-→ Overrated != bad 
+→ Don't waste your time on مائة百 
 → Most people have to admit that their show is not fairly rated
 
 <a href="https://www.goodreads.com/quotes/11411292-against-positivism-which-halts-at-phenomena-asserting-that-there-are-only#:~:text=facts%20are%20precisely%20what%20there%20is%20not%2C%20only%20interpretations.%20We%20cannot%20establish%20any%20fact%20%E2%80%9Cin%20itself%E2%80%9D%3A%20perhaps%20it%20is%20folly%20to%20want%20to%20do%20such%20a%20thing."><strong>Fun facts:</strong></a><br>
